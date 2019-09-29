@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* GRUZ :heart:
+* NAGROBEK :smile:
+  * DOLAR :smile:
+  * BAŚKA :smile:
